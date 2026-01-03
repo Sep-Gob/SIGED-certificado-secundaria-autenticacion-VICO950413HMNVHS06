@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VICO950413HMNVHS06
+VICO950413HMNVHS06
